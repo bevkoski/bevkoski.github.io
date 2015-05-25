@@ -1,2 +1,2 @@
-# bevkoski.github.io
+# Blagoja Evkoski
 My personal page.
